@@ -1,0 +1,1 @@
+salt, chilli pepper, turmeric, corn flour, rice flour, ginger garlic paste, chicken, oil, food color(optional), pepper(also optional) and lemon.
